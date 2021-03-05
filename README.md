@@ -1,9 +1,10 @@
 
 
-#Tcnologia#Paixão#Evoluir
+👩‍💻Tcnologia
+❤️‍Paixão
+🏃Evoluir
 
 
-####👩‍💻###
 Olá, sou Alessandra ! Graduada em Marketing e graduando Analise de desenvolvimento de Sistemas desenvolvimento,
 Desenvolvedora e apaixonada por tecnologia. Entusiasta em UI para uma melhor interface do seu site e facilidade de acesso para usuário
 Gosto entender o contexto e trazer soluções, acredito que a tecnologia tem esse poder de solucionar e inovar .
