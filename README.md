@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+     # Alessandra Brugneroro#
+     https://www.linkedin.com/in/alessandra-brugneroto-5b197082/
+     
+     Evoluir e não desistir
+     
+     
