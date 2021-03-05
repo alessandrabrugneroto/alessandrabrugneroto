@@ -1,4 +1,4 @@
-### Hi there 👋
+### Alessandra Brugneroro👋
 
 <!--
 **alessandrabrugneroto/alessandrabrugneroto** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-     # Alessandra Brugneroro#
+    
      https://www.linkedin.com/in/alessandra-brugneroto-5b197082/
      
      Evoluir e não desistir
