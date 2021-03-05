@@ -1,6 +1,6 @@
 
 
-👩‍💻Tcnologia
+👩‍💻Tecnologia
 ❤️‍Paixão
 🏃Evoluir
 
